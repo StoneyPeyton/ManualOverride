@@ -29,6 +29,6 @@ The manual override is derived from my own data, and purpose of how to rally a n
 
 *side note, never resend a message to avoid people reporting you for spam*
 
-*This is the manualoverride, it harnesses the backend of linkedins Aritifial Intelligence, by using smart bots, and tools.*
+*This is the manualoverride, it harnesses the backend of linkedins Artificial Intelligence, by using smart bots, and tools, on the backend data, that keeps people connected, A.I. reads our minds, so lets read our own minds, by reading A.I's powermind.*
 *7. Step to come, I'll be running this for clients in the future, then pulling all of it together to start another one of my viral spirals.
 
